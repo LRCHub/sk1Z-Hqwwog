@@ -1,4 +1,4 @@
-# Ado – 私は最強 (ウタ from ONE PIECE FILM RED)
+# Ado – 私は最強 (ウタ from ONE PIECE FILM RED) - I’m invincible (UTA from ONE PIECE FILM RED)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
